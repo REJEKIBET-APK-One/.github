@@ -47,7 +47,7 @@ Bagi para penggemar slot dan kasino, Rejekibet APK menjadi pilihan utama karena 
 
 ## Cara Menggunakan Rejekibet APK
 
-Menggunakan Rejekibet APK sangat mudah. Berikut adalah langkah-langkahnya:
+Menggunakan [Rejekibet APK](https://github.com/REJEKIBET-APK-One) sangat mudah. Berikut adalah langkah-langkahnya:
 
 1. **Unduh dan Instal**: 
    Unduh aplikasi dari situs resmi atau platform tepercaya, lalu instal di perangkat Android Anda. Pastikan perangkat Anda mendukung Android versi 5.0 atau lebih tinggi.
